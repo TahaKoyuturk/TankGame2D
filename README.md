@@ -6,7 +6,8 @@
 ![Capture2](https://user-images.githubusercontent.com/59308946/192884738-21479fbc-fe23-4e20-8b35-ac01588f2a4d.PNG)
 
 
-![Capture01](https://user-images.githubusercontent.com/59308946/192885021-11ccd754-71d0-4767-b73f-8060862b01a2.png)
+![qwqwe](https://user-images.githubusercontent.com/59308946/192885595-d977c35b-28eb-46d0-90ac-73212857ce08.JPG)
+
 
 
 
