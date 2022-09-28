@@ -1,5 +1,5 @@
 # TankGame2D 
-
+This game is my first unity game and made for my Ceng-361 class project.
 ![Capture](https://user-images.githubusercontent.com/59308946/192884695-3d51ab4e-dcde-4be6-ac99-2e1f3e7474e6.PNG)
 
 
